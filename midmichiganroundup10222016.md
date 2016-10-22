@@ -6,4 +6,5 @@
 * [Ithaca schools want state forgiveness on payback balance](http://www.themorningsun.com/general-news/20161022/ithaca-schools-want-state-forgiveness-on-payback-balance)
 * [From Alma to L.A.: mid-Michigan native pursues big dreams](http://www.themorningsun.com/general-news/20161022/from-alma-to-la-mid-michigan-native-pursues-big-dreams)
 * [Family Fun Fall Festival 2016](http://media.themorningsun.com/2016/10/22/family-fun-fall-festival-2016/#1)
+* [Ithaca ekes by Shepherd in regular season finale thriller](http://www.miprepzone.com/morningsun/results.asp?ID=8414)
 
